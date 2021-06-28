@@ -19,7 +19,7 @@ São poucos participantes que ao final dos 40 anos estavam com capital maior que
 
 Comparando com a realidade que vivemos hoje:
 Pegando como base o Estados Unidos, em 2020, o PIB foi de aproximadamente de 20.936 Tri USD($).
-Apenas as 10 pessoas mais ricas deste mesmo país totalizam uma quantia de aproximadamente 1,173 Tri USD($). Para contextualizar, em 2020, o país citado registrava a população de 331.449.281 milhões de pessoas. Caso dividíssemos a quantia desses magnatas entre a população inteira dos EUA, todos ficariam com incríveis 3 milhões de dólares e ainda sobraria um troco. 
+Apenas as 10 pessoas mais ricas deste mesmo país totalizam uma quantia de aproximadamente 1,173 Tri USD($). Para contextualizar, em 2020, o país citado registrava a população de 331.449.281 milhões de pessoas. Caso dividíssemos a quantia desses magnatas entre a população inteira dos EUA, todos ficariam com incríveis 3 milhões de dólares e ainda sobraria troco. 
 
 
 Dentre os 10 mais ricos, 8 trabalham na indústria tecnológica.
