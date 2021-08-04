@@ -1,4 +1,4 @@
-# Sorte-x-Inteligência-x-Riqueza.ipynb
+# Sorte e Inteligência = Riqueza.ipynb
 
 ## 1.	Meritocracia x Sorte. A riqueza é exclusiva dos “inteligentes”?
 
